@@ -1,6 +1,6 @@
 # HelloWorld
-starting first program in github
+starting first program 
 
 jdjhjhdjcng
 skd9ucd
-shuich
+I am doing fine I guess
